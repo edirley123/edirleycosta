@@ -35,9 +35,8 @@ Minha trajetória une a visão estratégica de negócio, liderança de equipas e
 
 ### 📫 Como me encontrar
 
-- **LinkedIn:** [https://www.linkedin.com/in/edirley-costa-
-b5b63a93]
-- **Lattes:** [Seu link se tiver]
+- **LinkedIn:** https://www.linkedin.com/in/edirley-costa-
+b5b63a93
 
 ---
 
